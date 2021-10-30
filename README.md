@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RedWirePlatinumTwo
+- 👋 Hi, I’m sex man 9000
 - 👀 I’m interested in sex
 - 🌱 I’m currently learning sex
 - 💞️ I’m looking to collaborate on sex
